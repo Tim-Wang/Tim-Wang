@@ -1,1 +1,1 @@
-![](http://148.70.30.208/cdn/cbf.JPG)
+![](https://github.com/Tim-Wang/Tim-Wang/blob/main/cbf.jpeg)
